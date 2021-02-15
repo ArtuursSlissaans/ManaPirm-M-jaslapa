@@ -1,1 +1,1 @@
-# ManaPirm-M-jaslapa
+# ManaPirm-Majaslapa
